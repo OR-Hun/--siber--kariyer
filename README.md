@@ -1,0 +1,2 @@
+# --siber--kariyer
+Hayatin degissin.
